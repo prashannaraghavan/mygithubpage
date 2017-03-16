@@ -1,2 +1,2 @@
-# mygithubpage
+# Prashanna Raghavan
 http://prashannaraghavan.me/
