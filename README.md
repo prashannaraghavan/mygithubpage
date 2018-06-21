@@ -1,2 +1,2 @@
 # Prashanna Raghavan
-http://raghavanprashanna.me/
+http://prashannaraghavan.me/
