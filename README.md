@@ -1,2 +1,2 @@
 # Prashanna Raghavan
-http://prashannaraghavan.me/
+https://prashannaraghavan.github.io/prashannaraghavan/
